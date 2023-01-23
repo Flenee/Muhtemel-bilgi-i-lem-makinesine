@@ -1,0 +1,1 @@
+# Muhtemel-bilgi-i-lem-makinesine
